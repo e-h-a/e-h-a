@@ -5,7 +5,7 @@
 I Love Rainbow🌈 and Cloudy weather⛈
 ✈ My Hoby is Travelling🚗
 🏏My favourite sport is cricket
-📟I love share knowladge 
+📟I really like to share knowladge
 ⌨Yeah I do love to code
 📸I love photography
 
