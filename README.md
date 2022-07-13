@@ -1,6 +1,14 @@
 # Assalamualaikum
 
 ### Thanks for visit me 🙂.
+
+I Love Rainbow🌈 and Cloudy weather⛈
+✈ My Hoby is Travelling🚗
+🏏My favourite sport is cricket
+📟I love share knowladge 
+⌨Yeah I do love to code
+📸I love photography
+
 #### I am a Beginner programmer and student of CS.
 I made this project just for fun, it allows you to create nice and simple GitHub Readme files that you can copy/paste and use in your profile.
 
